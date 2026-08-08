@@ -1,2 +1,2 @@
-# first-project-demo
-This is my first project
+# first-project
+START EARLY AND GET EARLY
